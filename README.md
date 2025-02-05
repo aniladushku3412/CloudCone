@@ -1,4 +1,4 @@
-# 2024年最新CloudCone优惠码-整理汇总CloudCone CDN优惠活动
+# 2025年最新CloudCone优惠码-整理汇总CloudCone CDN优惠活动
 
 ## CloudCone 介绍
 CloudCone 是一家国际知名的VPS提供商，以其优质的服务和竞争力的价格在全球范围内被广泛认可。特别是其CDN服务，为用户提供了快速且稳定的内容交付网络。
